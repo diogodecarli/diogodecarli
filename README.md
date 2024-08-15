@@ -8,5 +8,3 @@ e nao para por ai, aq temos ignite, life pod, linvo, oxbar, e oq vc precisar est
 kkkkkkkk nao vendo nd so mandaram eu vender algo
 
  [(![image](https://github.com/user-attachments/assets/633f3dc0-e2a3-47f8-810e-4be6fd1f6a28)]
- 
-
