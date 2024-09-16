@@ -15,3 +15,6 @@ interessados chama no insta(diogo_de_carli)
 kkkkkkkk nao vendo nd so mandaram eu vender algo
 
  ![](https://github.com/user-attachments/assets/633f3dc0-e2a3-47f8-810e-4be6fd1f6a28)
+
+
+ ![](https://media.tenor.com/sF5XmjcTrtYAAAAM/patrick-sponge-bob.gif)
